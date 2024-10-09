@@ -1,0 +1,1 @@
+# LOTE-1-QGIS
